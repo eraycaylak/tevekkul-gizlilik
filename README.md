@@ -1,0 +1,1 @@
+# tevekkul-gizlilik
